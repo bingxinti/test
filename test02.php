@@ -1,8 +1,3 @@
 
-a
-a
-s
-d
-a
-
+ooooo
 
